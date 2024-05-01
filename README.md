@@ -1,0 +1,5 @@
+- https://itch.io/
+- https://opengameart.org/
+- https://kenney.nl/
+- https://analogstudios.itch.io/
+- https://rottingpixels.itch.io/
